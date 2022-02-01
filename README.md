@@ -1,0 +1,4 @@
+- 👀 I’m interested in videos games, programs 
+- 🌱 I’m currently learning pygame
+- 💞️ I’m looking to collaborate on Discord
+- 📫 How to reach me, on my Discord @.𝙺𝚒𝚛𝚋𝚢 !#2990
